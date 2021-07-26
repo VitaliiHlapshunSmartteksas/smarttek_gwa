@@ -1,0 +1,1 @@
+# smarttek_gwa
